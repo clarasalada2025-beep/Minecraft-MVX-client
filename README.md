@@ -1,1 +1,1 @@
-# Minecraft-MVX-client Not official version.
+# Bro this site not funccione
